@@ -3,10 +3,10 @@
 http://2.16.dvrdns.org/<br>
 http://s2.49.hobby-site.org/<br>
 http://17.serveblog.net/<br>
-http://8.08.dhm.ro/<br>
+http://8.426.cabricop.com/<br>
 
-<a href="8.08.dhm.ro/zx/" target="_blank"><img src="http://8.08.dhm.ro/pic/2016/11/p7829911a215010452.jpg">
+<a href="8.426.cabricop.com/zx/" target="_blank"><img src="http://8.426.cabricop.com/pic/2016/11/p7829911a215010452.jpg">
 
                                    
 </a>
-# [飞天20位获得金奖学生的精彩表演](http://8.08.dhm.ro/zx/)
+# [飞天20位获得金奖学生的精彩表演](http://8.426.cabricop.com/zx/)
